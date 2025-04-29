@@ -13,3 +13,4 @@ meu nome é ✪Eduarda✪
 
 
 ![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZGtqNWR6ZnpwdDloeThiczZpYXNkYmFjMTBvemxiaDJhZ3A0Z2NvcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ZSDDiNfyiwnAbQUsFc/giphy.gif)
+!
