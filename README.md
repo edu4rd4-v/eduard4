@@ -9,4 +9,4 @@ meu nome é Eduarda
 # Você entra em contato  .✉.☘︎.comigo.☘︎ ܁✉.
 
 
-![](✎https://www.google.com/url?sa=i&url=https%3A%2F%2Fscreenrant.com%2Fcobra-kai-johnny-william-zabka-fan-reaction-different%2F&psig=AOvVaw2vugIEDnhRk_Krr-XbIgZh&ust=1746014195775000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCKjV8vSX_YwDFQAAAAAdAAAAABAE)
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZGtqNWR6ZnpwdDloeThiczZpYXNkYmFjMTBvemxiaDJhZ3A0Z2NvcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ZSDDiNfyiwnAbQUsFc/giphy.gif)
