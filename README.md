@@ -6,7 +6,7 @@ meu nome é Eduarda
 ☠︎︎estou me desenvolvendo no [alura](https://www.com.br)
 ☠︎︎meus hobies são ler, escutar musica e assistir🎧ྀི♪⋆.✮
 
-# Você entra em contato  .✉.☘︎.comigo.☘︎ ܁✉.
+# Você entra em contato  .✉.☘︎.comigo.☘︎.✉.
 
 
 ![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZGtqNWR6ZnpwdDloeThiczZpYXNkYmFjMTBvemxiaDJhZ3A0Z2NvcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ZSDDiNfyiwnAbQUsFc/giphy.gif)
