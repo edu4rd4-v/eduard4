@@ -1,5 +1,5 @@
 # Bem vindo(a) a meu ✶⋆.˚perfil✶⋆.˚
-meu nome é Eduarda 
+meu nome é ✪Eduarda✪
 
 ☠︎︎Atualmente sou uma estudante do ensino médio୭ ˚. ᵎᵎ
 
