@@ -1,10 +1,10 @@
 # Bem vindo(a) a meu ✶⋆.˚perfil✶⋆.˚
 meu nome é Eduarda 
 
-☠︎︎atualmente sou uma estudante do ensino médio୭ ˚. ᵎᵎ
-☠︎︎utilizo esse espaço para compartilhamento de meus projetos── .✦
-☠︎︎estou me desenvolvendo no [alura](https://www.com.br)
-☠︎︎meus hobies são ler, escutar musica e assistir🎧ྀི♪⋆.✮
+☠︎︎Atualmente sou uma estudante do ensino médio୭ ˚. ᵎᵎ
+☠︎︎Utilizo esse espaço para compartilhamento de meus projetos── .✦
+☠︎︎Estou me desenvolvendo no [alura](https://www.com.br)
+☠︎︎Meus hobies são ler, escutar musica e assistir🎧ྀི♪⋆.✮
 
 # Você entra em contato  .✉.☘︎.comigo.☘︎.✉.
 
